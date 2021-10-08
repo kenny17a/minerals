@@ -1,0 +1,1 @@
+##mineral resources are natural resources that are embedded in the outermost part of the earth, it is beneficiary to mankind, it is a source of revenue for government which in turn boost the economic strength of a nation, therefore resulting in economic prosperity and transcend to comfortable standard of living
